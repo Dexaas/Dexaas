@@ -7,6 +7,8 @@
 - 🤔 I’m looking for help with my life
 - ⚡ Fun fact: Wilimczyk stinks
 - 😥 KASIA WRÓC DO MNIE, MAMY DWÓJKE DZIECI
+- ❤  Wolny/slow
+- 🥶 Monsterki/potwórs
 
 [![My GitHub stats](https://github-readme-stats.vercel.app/api?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
