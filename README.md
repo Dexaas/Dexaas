@@ -6,9 +6,11 @@
 -     Discord: Magik#0985
 - 🤔 I’m looking for help with my life
 - ⚡ Fun fact: Wilimczyk stinks
+- 🏀 Basketball
 - 😥 KASIA WRÓC DO MNIE, MAMY DWÓJKE DZIECI
 - ❤  Wolny/slow
 - 🥶 Monsterki/potwórs
+- 🛴 Hulajnogi/hulajlegs
 - 😍 BESTIES
 -     @dyrtool😘
 
