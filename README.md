@@ -9,6 +9,8 @@
 - 😥 KASIA WRÓC DO MNIE, MAMY DWÓJKE DZIECI
 - ❤  Wolny/slow
 - 🥶 Monsterki/potwórs
+- 😍 BESTIES
+-     @dyrtool😘
 
 [![My GitHub stats](https://github-readme-stats.vercel.app/api?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
