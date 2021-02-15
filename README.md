@@ -3,7 +3,7 @@
 - 👀 I’m interested in hot girls and $imping
 - 🌱 I’m currently learning python🐍
 - 📫 How to reach me:
-  - Discord: [Magik#0985](discord.com/users/690650238159028224)
+  - Discord: [Magik#0985](https://discord.com/users/690650238159028224)
 - 🤔 I’m looking for help with my life
 - ⚡ Fun fact: Wilimczyk stinks
 - 🏀 Basketball
