@@ -3,9 +3,10 @@
 - 👀 I’m interested in hot girls and $imping
 - 🌱 I’m currently learning python🐍
 - 📫 How to reach me:
-      Discord: Magik#0985
+-     Discord: Magik#0985
 - 🤔 I’m looking for help with my life
 - ⚡ Fun fact: Wilimczyk stinks
+- 😥 KASIA WRÓC DO MNIE, MAMY DWÓJKE DZIECI
 
 [![My GitHub stats](https://github-readme-stats.vercel.app/api?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
