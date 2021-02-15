@@ -3,7 +3,7 @@
 - 👀 I’m interested in hot girls and $imping
 - 🌱 I’m currently learning python🐍
 - 📫 How to reach me:
--     Discord: [Magik#0985](discord.com/users/690650238159028224)
+  - Discord: [Magik#0985](discord.com/users/690650238159028224)
 - 🤔 I’m looking for help with my life
 - ⚡ Fun fact: Wilimczyk stinks
 - 🏀 Basketball
@@ -12,11 +12,11 @@
 - 🥶 Monsterki/potwórs
 - 🛴 Hulajnogi/hulajlegs
 - 😍 BESTIES
--     @dyrtool😘
+  - [@dyrtool😘](https://github.com/dyrtool)
 
-[![My GitHub stats](https://github-readme-stats.vercel.app/api?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
+[![My GitHub stats😎](https://github-readme-stats.vercel.app/api?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
-[![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
+[![Top Languages🏳‍🌈](https://github-readme-stats.vercel.app/api/top-langs/?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
 <!--
 **Dexaas/Dexaas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.--->
