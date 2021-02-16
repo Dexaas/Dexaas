@@ -12,6 +12,7 @@
 - ❤  Wolny/slow
 - 🥶 Monsterki/potwórs
 - 🛴 Hulajnogi/hulajlegs
+- 🍗 Szpaku/bird
 - 😍 BESTIES
   - [@dyrtool😘](https://github.com/dyrtool)
 
