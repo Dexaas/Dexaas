@@ -8,7 +8,7 @@
 - 🤔 I’m looking for help with my life
 - ⚡ Fun fact: Wilimczyk stinks
 - 🏀 Basketball
-- 😥 KASIA WRÓC DO MNIE, MAMY DWÓJKE DZIECI
+- 😥 OLIVIA KOCHAM CIE, NIE OPUSZCZAJ MNIE
 - ❤  Wolny/slow
 - 🥶 Monsterki/potwórs
 - 🛴 Hulajnogi/hulajlegs
