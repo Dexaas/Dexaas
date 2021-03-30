@@ -17,6 +17,7 @@
 - 😍 BESTIES
   - [@dyrtool😘](https://github.com/dyrtool)
   - [@riki2137😘](https://github.com/riki2137)
+  - [@Pitosn69](https://github.com/Pitson69)
 
 [![My GitHub stats](https://github-readme-stats.vercel.app/api?username=Dexaas&theme=gotham&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
